@@ -1,2 +1,0 @@
-# BULKING-CUTTING
-App
